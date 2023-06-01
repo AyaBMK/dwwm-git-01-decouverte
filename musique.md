@@ -9,6 +9,8 @@ Fairouz Ai commence sa carrière en obtenant l'un des rôles principaux de l'ani
 Born (November 21, 1934) and educated in Beirut, she began her musical career as a chorus member at the Lebanese Radio Station. In the late 1950s her talent as a singer became fully acknowledged.
 Fayrouz's early songs featured the singer's distinct vocal timbre and lyrics expressing romantic love and nostalgia for village life. They meshed with a delicate orchestral blend in which certain Arab instruments figured prominently but which also subtly incorporated European instruments and
 
+
 ### Recompenses 
 
 hello i'm the best
+
